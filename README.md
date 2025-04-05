@@ -1,5 +1,5 @@
-# Ivhutto.github.io
+# Ian Hutto
 
-### Education 
+### Education
 
 ### Projects
